@@ -4,4 +4,4 @@
 
 
 
-I also can help you to get into a web3 project🦀⚛️⚓☀. Let's get in touch Discord: Cndgrrmndz#4999
+I'm also working on my own project Disco Protocol. Let's get he party started: https://discord.gg/T797Wv5Uex
