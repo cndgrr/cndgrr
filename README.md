@@ -1,4 +1,4 @@
-👋 Hi, Cindy here!
+👋 Hi, Guerra here!
 
 I’m interested in applying psychology in the IT world💻.
 
