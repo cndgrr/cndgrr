@@ -3,7 +3,7 @@
 I’m interested in applying psychology in the IT world💻.
 
 
-Right now I'm working on Disco Protocol. We're building a decentralized way to manage events with a funky twist using Solana. 
+Right now I'm working on Heavy Duty and Disco Protocol. 
 
-Follow us on Twitter: https://twitter.com/DISCO_Protocol
-Join our Discord: https://discord.gg/T797Wv5Uex
+Follow us on Twitter: (https://twitter.com/HeavyDutyBuild)
+Join our Discord: https://discord.gg/Ww7RH5pdvf
